@@ -1,4 +1,4 @@
-# Vol.5-Issue.1-
+# Vol.5-Issue.1
 Iberoamerican Journal of Medicine, Volume 5, Issue 1 (2023)
 
 We are so proud in announce that a new issue (Vol. 5, Issue 1) has been released in February. Please check our web (http://www.iberoamjmed.com) to read content.The articles published are:
